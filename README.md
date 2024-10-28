@@ -62,36 +62,54 @@ a) 1. You don't get up early.
 
 
  b) 2 - d
+ 
     3 - e
+    
     4 - a
+    
     5 - b
+    
     6 - f
 
  
  c) 1. quiet
+ 
     2. aggressive
+    
     3. greedy
+    
     4. unfriendly
+    
     5. lazy
+    
     6. evil 
+    
     7. unserious
+    
     8. clever
 
 
    ### №3 (Pronuncation)
 ### №1
    2) lives
-   3) likes
-   4) goes
-   5) dresses
-   6) cooks
+   3) 
+   4) likes
+   5) 
+   6) goes
+   7) 
+   8) dresses
+   9) 
+   10) cooks
 
 ### №4 (Reading)
 ### №1 (b) 
 2) true
-3) true
-4) false
-5) true
+   
+4) true
+   
+6) false
+   
+8) true
  
 
  
