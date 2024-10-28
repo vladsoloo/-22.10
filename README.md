@@ -22,25 +22,42 @@ a) 1. You don't get up early.
 
 
   c)  earns
+  
       study
+      
       want
+      
       lives
+      
       share 
+      
       have
+      
       does not like
+      
       shy 
+      
       prefer
+      
       busy
-      get on 
+      
+      get on
+      
       say
  ### №2 ( Vocabulary)
 
  a) 2. bald. 
+ 
     3. extrovert
+    
     4. beard
+    
     5. hard-working
+    
     6. serious
+    
     7. patient
+    
     8. helpful
 
 
