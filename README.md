@@ -1,18 +1,18 @@
 ### Соломахин Владислав
 
-1)  1) You don't get up early.  
+1) 1) You don't get up early.  
 
-    2) It doesn't rain a lot here.  
+   2) It doesn't rain a lot here.  
 
-    3) We don'tlive in a flat.  
+   3) We don'tlive in a flat.  
 
-    4) I don't play tennis.  
+   4) I don't play tennis.  
 
-    5) He doesn't have a beard.  
+   5) He doesn't have a beard.  
 
-    6) They don't go to the gym.  
+   6) They don't go to the gym.  
 
-    7) She doesn't write a blog.  
+   7) She doesn't write a blog.  
   
 3) 2 Does
  
