@@ -21,38 +21,38 @@ b) 2) Does your laptop have a webcam?
    7)  Does your brother spend a long time on Facebook?
 
 
-  c)  earns
+  c)  1 earns
   
-      study
+      2 study
       
-      want
+      3 want
       
-      lives
+      4 lives
       
-      share 
+      5 share 
       
-      have
+      6 have
       
-      does not like
       
-      shy 
       
-      prefer
       
-      busy
       
-      get on
+      9 prefer
       
-      say
+      
+      
+      11 get on
+      
+      
  ### №2 ( Vocabulary)
 
  a) 2. bald. 
  
-    3. extrovert
+    3. straight, curly
     
-    4. beard
+    4. beard, moustache
     
-    5. hard-working
+    5. 
     
     6. serious
     
