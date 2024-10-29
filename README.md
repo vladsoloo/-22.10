@@ -8,17 +8,17 @@ a) 1. You don't get up early.
    6. They don't go to the gym.  
    7. She doesn't write a blog.  
   
-  b) 2. Does your laptop have a webcam?
+b) 2) Does your laptop have a webcam?
   
-     3. What time do we need to leave?
+   3) What time do we need to leave?
      
-     4. Does your mother work from home?
+   4) Does your mother work from home?
      
-     5.  Which websites do you use most?
+   5)  Which websites do you use most?
      
-     6.  Does your girlfriend like action films?
+   6) Does your girlfriend like action films?
      
-     7.  Does your brother spend a long time on Facebook?
+   7)  Does your brother spend a long time on Facebook?
 
 
   c)  earns
